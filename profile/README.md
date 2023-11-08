@@ -1,5 +1,7 @@
 <div align="center">
 
-  ### We like Tetris
+  well, idk about this team
+  
+  but it will be awesome
   
 </div>
